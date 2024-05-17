@@ -20,4 +20,8 @@ Bring your delicious cake
 Then light up the candle
 ![image](https://github.com/NihushaganS/Happy-Birthday/assets/140425940/277e82ad-7a75-4223-993a-6006e9b63f46)
 
+Time to wish your favourite one
 ![image](https://github.com/NihushaganS/Happy-Birthday/assets/140425940/33394382-c31c-49d9-8eb9-3a68a2695f53)
+
+Send your message
+![image](https://github.com/NihushaganS/Happy-Birthday/assets/140425940/77b4f9dc-6303-417c-a583-8a996f3d8a03)
