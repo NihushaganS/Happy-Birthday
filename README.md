@@ -14,3 +14,10 @@ Fly the balloons
 
 ![image](https://github.com/NihushaganS/Happy-Birthday/assets/140425940/bfec2f7a-32b1-40dd-8439-5c17ef6791da)
 
+Bring your delicious cake
+![image](https://github.com/NihushaganS/Happy-Birthday/assets/140425940/bbe4876a-74a2-4417-95e9-4a5ca538151a)
+
+Then light up the candle
+![image](https://github.com/NihushaganS/Happy-Birthday/assets/140425940/277e82ad-7a75-4223-993a-6006e9b63f46)
+
+![image](https://github.com/NihushaganS/Happy-Birthday/assets/140425940/33394382-c31c-49d9-8eb9-3a68a2695f53)
